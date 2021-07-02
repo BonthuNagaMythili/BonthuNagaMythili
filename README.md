@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @BonthuNagaMythili
-- 👀 I’m interested in exploring my talents always!!
+- 👀 I’m interested in exploring my talents!!
